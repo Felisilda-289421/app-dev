@@ -5,5 +5,4 @@
 3. Bungou Stray Dogs
 4. Haikyuu!
 5. Jujutsu Kaisen
-Why?
-> Because they story and animation is ***GOOD!***
+> Why? Because they story and animation is ***GOOD!***
